@@ -1,1 +1,1 @@
-# MallikarjunKuri-1BM22CS144-_Os_labk
+# MallikarjunKuri-1BM22CS144_Os_lab
